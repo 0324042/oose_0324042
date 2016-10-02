@@ -1,2 +1,2 @@
-# 0324042
-Just another reponsitory
+# oose_0324042
+資管3B 0324042 曾妘云
